@@ -6,7 +6,7 @@
 
 
 <p align=center>
-. c + h at <ins>any</ins> times <img width="20" height="20" alt="suusususuusauaaa" src="https://github.com/user-attachments/assets/249753fa-cc23-43ef-932d-2b51b1d02e92" /> often offtab so w2i !
+  ${\color{lilac} c + h}$ at <ins>any</ins> times <img width="20" height="20" alt="suusususuusauaaa" src="https://github.com/user-attachments/assets/249753fa-cc23-43ef-932d-2b51b1d02e92" /> often offtab so w2i !
 
 
 
