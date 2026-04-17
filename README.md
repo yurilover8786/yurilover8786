@@ -1,3 +1,5 @@
+my repository is glitched bruh
+
 <p align=center>
 <img width="859" height="720" alt="tttttttttttttttttttttttttttt" src="https://github.com/user-attachments/assets/6b38a7fb-7a78-4284-b63e-c86bd67d905c" />
 
