@@ -1,7 +1,7 @@
-my repository is glitched bruh
 
 <p align=center>
-<img width="859" height="720" alt="tttttttttttttttttttttttttttt" src="https://github.com/user-attachments/assets/6b38a7fb-7a78-4284-b63e-c86bd67d905c" />
+<img width="1280" height="720" alt="tttttttttttttttttttttttttttt" src="https://github.com/user-attachments/assets/5adc4fcf-30e2-4f01-9116-7eb10cfb0304" />
+
 
 <p align=center>
 <a href="https://hits.sh/GitHub.com/yurilover8786/hits/"><img alt="Hits" src="https://hits.sh/GitHub.com/yurilover8786/hits.svg?style=plastic&label=mizisua&extraCount=8781&color=a587bc&labelColor=ffffff"/></a>
@@ -68,7 +68,7 @@ my repository is glitched bruh
 
 
 
-<img width="859" height="720" alt="ssuuuususususuuauauausauaua" src="https://github.com/user-attachments/assets/38fc42aa-bcac-4cc1-a0db-025ca8a1a9e6" />
+<img width="900" height="50" alt="ssuuuususususuuauauausauaua" src="https://github.com/user-attachments/assets/f6800b88-6c3e-40d0-b91e-6394a69070d2" />
 
 
 <p align=center>
@@ -95,7 +95,49 @@ SAFE sever , often in russian to build . iwc thanks!  . DNC any of my ponies unl
 
 .
 
+
 <p align=center>
-<img width="230" height="200" alt="susuausaus" src="https://github.com/user-attachments/assets/e4cbdfec-a10c-41fe-89db-f25b18837997" />
-<img width="230" height="200" alt="susuususuau" src="https://github.com/user-attachments/assets/4433f7fc-4929-4664-8d0a-e227a57c24fd" />
-<img width="230" height="200" alt="susuusa" src="https://github.com/user-attachments/assets/8aa08685-02ab-4c72-b040-c3411ea697d2" />
+<img width="100" height="30" alt="42" src="https://github.com/user-attachments/assets/398bc055-d5b6-4e23-b3b5-135a832d421a" />
+
+
+
+
+
+
+  .
+
+
+
+
+
+
+
+
+
+
+
+
+  .
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+.
+
+
+<img width="999" height="60" alt="IMG_1121" src="https://github.com/user-attachments/assets/b416691c-96f0-4a7f-8470-930c7b1d1f64" />
+
+i fixed my readme ok!
+
